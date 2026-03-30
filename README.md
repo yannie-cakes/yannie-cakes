@@ -1,4 +1,4 @@
-life as a comsci student !
+life as a woman in tech !
 
 <!---
 yannie-cakes/yannie-cakes is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
